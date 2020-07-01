@@ -1,5 +1,7 @@
+---
 layout: page
 title: "The Pink house"
+---
 
 ## Welcome to GitHub Pages
 
