@@ -1,37 +1,19 @@
-## Welcome to GitHub Pages
+## Beautiful House in the Heart of East Portland
 
-You can use the [editor on GitHub](https://github.com/gabelula/pinkhouse/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+We have one more room available at my beautiful house in SE Laurelhurst. We live right near the park and very close to public transportation and bike lanes. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Starting in September we will have available the nicest room in the house. It is a big private bedroom with three closets and shared bathroom (only one more person uses that bathroom), shared use of kitchen and living area, Wi-Fi, and free washer and dryer. I’m asking for $700 plus utilities. Utilities could be from $50 to around $80 depending on the time of the year. 
 
-### Markdown
+There are two outside porch/patio areas and fenced back yard. There are 5 bedrooms upstairs with 3 full bathrooms and one big kitchen. And 2 bedrooms in the basement with one full bathroom and one full kitchen. The room that we have available is the biggest one on the upstairs floor. It has a lot of light and space to have a desk if needed. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+We share the house between 3 adults upstairs (including you) and 2 adults in the basement apartment downstairs (we share the patios with them). Two kids and one dog live in the house every other week but they will be gone this winter. We will have the kids’s rooms to sublet from October 2020 to March 2021.
 
-```markdown
-Syntax highlighted code block
+· Move in requires: first and last month's rent, security deposit of $600 and a month to month lease.
+· Quality of life: We seek somebody interested in having a more just world and who is self-motivated, and considerate of others. We want this creative living situation to contribute to each person's quality of life.
+. Community: We would like somebody that would like to share house meals once in a while and is good with communication with the rest of the housemates. 
+· Pet situation: We already have 1 dog every other week but we may consider another pet if it relates well with dogs.
+· Location: home is 1 block from lovely Laurelhurst Park, 5 blocks to whole foods, cafes and pubs; a 15 minute drive/bus to downtown, and really easy bus connections to the entire metro area.
 
-# Header 1
-## Header 2
-### Header 3
+Available August 1st
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/gabelula/pinkhouse/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Fill this form if you are interested in the room https://bit.ly/2Cn6llW
