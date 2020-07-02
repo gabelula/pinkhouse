@@ -1,6 +1,6 @@
 We have one room available at my beautiful house in SE Laurelhurst. We live right near the park and very close to public transportation and bike lanes.
 
-Starting in August we will have available the nicest room in the house. It is a big private bedroom with three closets and a shared bathroom (only one more person uses that same bathroom), shared use of kitchen and living area, Wi-Fi, and washer and dryer. I’m asking for $700 plus utilities. Utilities could be from $50 to around $80 depending on the time of the year.
+Starting in August we will have available one of the nicest room in the house. A private room with shared bathroom (only one more person uses that same bathroom), shared use of kitchen and living area, Wi-Fi, and washer and dryer. I’m asking for $700 plus utilities. Utilities could be from $50 to around $80 depending on the time of the year.
 
 There are two outside porch/patio areas and a fenced back yard. There are 5 bedrooms upstairs with 3 full bathrooms and one big kitchen. And 2 bedrooms in the basement with one full bathroom and one full kitchen with separate entrance. The room that we have available has the windows to the south. It has a lot of light and space to have a desk if needed.
 
