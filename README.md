@@ -6,11 +6,11 @@ There are two outside porch/patio areas and a fenced back yard. There are 5 bedr
 
 We share the house between 3 adults upstairs (including you) and 2 adults in the basement apartment downstairs (we share the patios with them). Two kids and one dog live in the house every other week but they will be gone this winter. We will have the kids’s rooms to sublet from October 2020 to March 2021.
 
-· Move in requires: first and last month's rent, security deposit of $600 and a month to month lease.
-· Quality of life: We seek somebody interested in having a more just world and who is self-motivated, and considerate of others. We want this creative living situation to contribute to each person's quality of life.
-. Community: We would like somebody that would like to share house meals once in a while and is good with communication with the rest of the housemates.
-· Pet situation: We already have 1 dog every other week but we may consider another pet if it relates well with dogs.
-· Location: home is 1 block from lovely Laurelhurst Park, 5 blocks to whole foods, cafes and pubs; a 15 minute drive/bus to downtown, and really easy bus connections to the entire metro area.
+* Move in requires: first and last month's rent, security deposit of $600 and a month to month lease.
+* Quality of life: We seek somebody interested in having a more just world and who is self-motivated, and considerate of others. We want this creative living situation to contribute to each person's quality of life.
+* Community: We would like somebody that would like to share house meals once in a while and is good with communication with the rest of the housemates.
+* Pet situation: We already have 1 dog every other week but we may consider another pet if it relates well with dogs.
+* Location: home is 1 block from lovely Laurelhurst Park, 5 blocks to whole foods, cafes and pubs; a 15 minute drive/bus to downtown, and really easy bus connections to the entire metro area.
 
 **Available on August 1st**
 
