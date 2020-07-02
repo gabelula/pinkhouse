@@ -1,13 +1,15 @@
 <!DOCTYPE html>
 <html lang="{{ site.locale }}">
-  
+
   {% include head.html %}
 
   <body>
     {% include page-header.html %}
 
     <section class="main-content">
-      
+
+      {% include carousel.html height="50" unit="%" duration="7" %}
+
       {{ content }}
 
       {% include page-footer.html %}
