@@ -1,2 +1,12 @@
 theme: jekyll-theme-cayman
-project-name: The Pink House
+title: Big House in the Heart of Inner East Portland
+tagline: Looking for housemate!
+baseurl: ""
+paginate: 1
+locale: "en"
+# Gems
+gems:
+  - jekyll-paginate
+
+#Others
+markdown: kramdown
