@@ -8,7 +8,10 @@ We share the house between 3 adults upstairs (including you) and 2 adults in the
 
 * Move in requires: first and last month's rent, security deposit of $600 and a month to month lease.
 * Quality of life: We seek somebody interested in having a more just world and who is self-motivated, and considerate of others. We want this creative living situation to contribute to each person's quality of life.
-* Community: We would like somebody that would like to share house meals once in a while and is good with communication with the rest of the housemates.
+* Community:
+  * We would like somebody that would like to share house meals once in a while and is considerated and appreciative on building spaces for communities.
+  * Somebody that is good with communication with the rest of the housemates. Commited to clear and direct communication.
+  * We need someone who is taking Covid-19 very seriously and wearing masks and social distancing as much as possible when out of the house.
 * Pet situation: We already have 1 dog every other week but we may consider another pet if it relates well with dogs.
 * Location: home is 1 block from lovely Laurelhurst Park, 5 blocks to whole foods, cafes and pubs; a 15 minute drive/bus to downtown, and really easy bus connections to the entire metro area.
 
