@@ -14,7 +14,7 @@ In addition, there’s a garage, a great backyard for barbequing or lounging, gi
 ... for $600 for regular sized rooms (or $1600 for apartment) per month plus utilities. Per person utilities could be from $50 to around $80 depending on the time of the year.
 
 ## We are ...
-* C - A 31 year-old male, former education advocate current Nike Data Scientist. I enjoy rock climbing, escape rooms, reading science fiction, and long walks on the beach with J.
+* C - A 31 year-old (he/him), former education advocate current Nike Data Scientist. I enjoy rock climbing, escape rooms, reading science fiction, and long walks on the beach with J.
 * J - A 24 year-old (they/them): Food justice, contemporary dancer, avid baker, painter, and anime nerd.
 * L - A 29 year-old (he/him) software developer who likes cycling, climbing, amateur-chefery, and socializing. Before the pandemic, L was known for hosting dinner get-togethers with friends and housemates.
 
