@@ -1,8 +1,8 @@
 # Welcome to the Pink House!
 ## “Wow, I didn’t know you lived here!” 
 ... is the reaction I get when friends come over (pre-covid of course!). _So I hope I’ve gotten your attention for this short pitch_: 
-* ISO: 3 to 4 people to join us to fill two regular sized rooms OR one 2BR apartment 
-* A deal: Regular rooms are going for $600 and the 2BR for $1600 (utilities are $50 to $80)
+* ISO: 1 person to join us to fill two regular sized rooms OR one 2BR apartment 
+* A deal: around $650 (exlcluding utilities)
 * Great location: Beautiful SE Laurelhurst, steps away from the Mayor’s Mansion and Laurelhurst park, coffee, food, grocery, and transportation lines
 * Diverse: You’ll be joining three people of color and we welcome all with open hearts and minds to join us to build a thriving community.
 
@@ -17,6 +17,7 @@ In addition, there’s a garage, a great backyard for barbequing or lounging, gi
 * C - A 31 year-old (he/him), former education advocate current Nike Data Scientist. I enjoy rock climbing, escape rooms, reading science fiction, and long walks on the beach with J.
 * J - A 24 year-old (they/them): Food justice, contemporary dancer, avid baker, painter, and anime nerd.
 * L - A 29 year-old (he/him) software developer who likes cycling, climbing, amateur-chefery, and socializing. Before the pandemic, L was known for hosting dinner get-togethers with friends and housemates.
+* G - a 28 year-old software engineer 
 
 ## You are …
 Laid-back, tidy, and have healthy boundaries, but are also interested in participating in a warm and social living situation; not afraid of shared meals or movie nights from time-to-time. We’re looking for tactful communicators who are willing to work to resolve the inevitable conflicts that come with living in a house of five. We want someone who is taking Covid-19 very seriously and wearing masks and social distancing as much as possible when out of the house. Unfortunately we can’t accept any cats or dogs due to allergies.
