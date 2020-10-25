@@ -4,7 +4,7 @@
 * ISO: 3 to 4 people to join us to fill two regular sized rooms OR one 2BR apartment 
 * A deal: Regular rooms are going for $600 and the 2BR for $1600 (utilities are $50 to $80)
 * Great location: Beautiful SE Laurelhurst, steps away from the Mayor’s Mansion and Laurelhurst park, coffee, food, grocery, and transportation lines
-* Diverse: You’ll be joining three people of color and we welcome all with open hearts and minds to join us to build a thriving community. BLM/ACAB.
+* Diverse: You’ll be joining three people of color and we welcome all with open hearts and minds to join us to build a thriving community.
 
 If you’re trying to imagine the house, there are 5 bedrooms upstairs with 3 full bathrooms and one big kitchen. In the basement apartment, there is a spacious 2 BR with one full bathroom, one full kitchen, storage area, and a separate entrance. 
 
