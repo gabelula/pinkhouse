@@ -1,17 +1,15 @@
 # Welcome to the Pink House!
 ## “Wow, I didn’t know you lived here!” 
 ... is the reaction I get when friends come over (pre-covid of course!). _So I hope I’ve gotten your attention for this short pitch_: 
-* ISO: 1 person to join us to fill two regular sized rooms OR one 2BR apartment 
+* ISO: 1 person to join us to fill one
 * A deal: around $650 (exlcluding utilities)
 * Great location: Beautiful SE Laurelhurst, steps away from the Mayor’s Mansion and Laurelhurst park, coffee, food, grocery, and transportation lines
 * Diverse: You’ll be joining three people of color and we welcome all with open hearts and minds to join us to build a thriving community.
 
-If you’re trying to imagine the house, there are 5 bedrooms upstairs with 3 full bathrooms and one big kitchen. In the basement apartment, there is a spacious 2 BR with one full bathroom, one full kitchen, storage area, and a separate entrance. 
-
-In addition, there’s a garage, a great backyard for barbequing or lounging, giant living room for get togethers, a dining room for dinner parties, and a sun room / reading nook-- to recharge your vitamin D or get some reading done. 
+If you’re trying to imagine the house, there are 5 bedrooms upstairs and one big kitchen. In addition, there’s a garage, a great backyard for barbequing or lounging, giant living room for get togethers, a dining room for dinner parties, and a sun room / reading nook-- to recharge your vitamin D or get some reading done. 
 
 ## We're asking ...
-... for $600 for regular sized rooms (or $1600 for apartment) per month plus utilities. Per person utilities could be from $50 to around $80 depending on the time of the year.
+... for $650 for regular sized rooms per month plus utilities. Per person utilities could be from $50 to around $80 depending on the time of the year.
 
 ## We are ...
 * C - A 31 year-old (he/him), former education advocate current Nike Data Scientist. I enjoy rock climbing, escape rooms, reading science fiction, and long walks on the beach with J.
@@ -29,7 +27,7 @@ Laid-back, tidy, and have healthy boundaries, but are also interested in partici
 
 ## The Game Plan ...
 * Move in as early as November 2.
-* Move in requires: first and last month’s rent, security deposit of $600 and a month to month lease.
+* Move in requires: first and last month’s rent, security deposit of $650 and a month to month lease.
 
 ### Near the Laurelhurst park
 
