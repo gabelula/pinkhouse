@@ -13,9 +13,9 @@ If you’re trying to imagine the house, there are 5 bedrooms upstairs and one b
 
 ## We are ...
 * C - A 31 year-old (he/him), former education advocate current Nike Data Scientist. I enjoy rock climbing, escape rooms, reading science fiction, and long walks on the beach with J.
-* J - A 24 year-old (they/them): Food justice, contemporary dancer, avid baker, painter, and anime nerd.
+* J - A 26 year-old (they/them): Food justice, contemporary dancer, avid baker, painter, and anime nerd.
 * L - A 29 year-old (he/him) software developer who likes cycling, climbing, amateur-chefery, and socializing. Before the pandemic, L was known for hosting dinner get-togethers with friends and housemates.
-* G - a 28 year-old software engineer 
+* G - a 27 year-old (he/him), recently moved to Oregon. He enjoys hiking, snowboarding, rock climbing and pretty much most food.
 
 ## You are …
 Laid-back, tidy, and have healthy boundaries, but are also interested in participating in a warm and social living situation; not afraid of shared meals or movie nights from time-to-time. We’re looking for tactful communicators who are willing to work to resolve the inevitable conflicts that come with living in a house of five. We want someone who is taking Covid-19 very seriously and wearing masks and social distancing as much as possible when out of the house. Unfortunately we can’t accept any cats or dogs due to allergies.
